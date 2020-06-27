@@ -12,3 +12,7 @@ alles was ein Hund so macht.
 * immer hungrig
 * guter Tänzer
 * cool
+
+Snoopy sagt:
+
+> Keep looking up... that's the secret of life
