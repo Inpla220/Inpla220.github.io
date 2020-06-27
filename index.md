@@ -16,3 +16,5 @@ alles was ein Hund so macht.
 Snoopy sagt:
 
 > Keep looking up... that's the secret of life
+
+<img src="https://p0.piqsels.com/preview/629/748/928/snoopy-themed-graffiti-on-white-wall.jpg"/>
